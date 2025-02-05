@@ -1,4 +1,4 @@
-# 2024 Latest SmokyHosts Coupon Codes - Organized Summary of SmokyHosts Deals
+# 2025 Latest SmokyHosts Coupon Codes - Organized Summary of SmokyHosts Deals
 
 ## SmokyHosts Introduction
 Welcome to SmokyHosts, a leading provider of flexible, powerful, and affordable VPS hosting solutions since 2004. Whether you need hosting for personal, business, or e-commerce purposes, SmokyHosts offers custom VPS plans tailored to meet diverse needs.
